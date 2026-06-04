@@ -1,4 +1,4 @@
-#  
+#  updated ink game Scripts is the best ink game Script, featuring custom skins and auto-sell. Safe and powerful for all your needs.
 
 
 
